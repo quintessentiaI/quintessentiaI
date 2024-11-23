@@ -9,7 +9,7 @@
 <p align="center"> 𓆗  .  .   𓆙  .  𓆙  .  .  𓆗 
 <p align="center">
   <img src="<p align="center">
-  <img src="https://i.postimg.cc/kG1xyzgW/Untitled67-20241123021741.png" width="350"/>
+  <img src="https://i.postimg.cc/kG1xyzgW/Untitled67-20241123021741.png" width="390"/>
 </p>
 <p align="center"> ɪɴᴛʀᴏᴊᴇᴄᴛ . '' ᴄᴀʟʟ ᴍᴇ ᴍᴇᴢᴢ, ᴍᴇꜱꜱᴍᴇʀ, ᴏʀ ᴅᴀɴᴇ . ''
 <p align="center"> - 13 ᴀɴᴅ  /  ᴏʀ 27 + ʜᴇᴀᴠɪʟʏ ᴀᴅᴠɪꜱᴇᴅ ᴛᴏ ʟɪᴍɪᴛ ɪɴᴛᴇʀᴀᴄᴛɪᴏɴꜱ ᴏʀ ᴊᴜꜱᴛ ᴅɴɪ .
